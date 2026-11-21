@@ -1,0 +1,2 @@
+# kataSanggaDisuruhUploadKeGithubAjaEnggaAdaFormatNamanyaBuatPenugasanFukuroDay4
+katanya gitu
